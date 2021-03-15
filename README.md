@@ -7,6 +7,6 @@ I’m Camille,  I'm a web developer based in Paris 🥐.
 
 Reach me [here](mailto:camille.doizelet@gmail.com).
 
-Thanks for stopping by 👐.
+Thanks for stopping by 🎩.
 
 
